@@ -13,3 +13,4 @@ Instructions:
 3. Taste test and add additional lime, salt, and/or cilantro if needed.
 
 Note: if you need to store this, lay saran wrap directly on top of the guacamole and remove any air pockets; store in fridge. Alternatively, you can layer water on top of the guacamole (will need to carefully pour off before serving).
+Note2: if you don't like it super spicy, make sure to remove and discard the seeds from your jalapeno before dicing and adding it.
